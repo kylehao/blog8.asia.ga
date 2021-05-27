@@ -3,7 +3,7 @@ layout: post
 title: 《Ai%20Takahashi%20[28P]》
 date: 2020-08-02
 img: http://photo.orgx.cf/%E5%94%AF%E7%BE%8E/2019/AiTakahashi高桥爱[28P]/000.jpg
-tags: [美女,%20清纯,%20唯美]
+tags: [美女,清纯,唯美]
 ---
 
 Ai%20Takahashi%20[28P]
